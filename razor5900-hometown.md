@@ -4,6 +4,7 @@
 
 Junz - sushi
 Armando's - Italian
+Trappers Chop House - Steak 
 
 ## Fun Things to Do
 
