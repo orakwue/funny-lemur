@@ -1,3 +1,6 @@
+## Mumbai, Maharashtra, India.
 
-This is a sample file.
-This file name has the username and hometown.
+### Great Places to eat
+
+### Fun things to do
+
