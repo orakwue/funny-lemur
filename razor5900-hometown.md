@@ -1,6 +1,14 @@
-Parker, Colorado
+## Parker, Colorado
 
-Great place to eat:  junz - sushi
-Things to do: walk/bike ride (many trails), dance @ Tailgate Tavern, boondocks (put-put, go-carts, bowling, video games, bar, lazer tag)
+## Great Places to Eat
+
+Junz - sushi
+Armando's - Italian
+
+## Fun Things to Do
+
+walk/bike ride (many trails), 
+dance @ Tailgate Tavern, 
+boondocks (put-put, go-carts, bowling, video games, bar, lazer tag)
 
   
